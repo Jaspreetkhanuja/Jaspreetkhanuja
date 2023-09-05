@@ -2,11 +2,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=jaspreetkhanuja&label=Profile%20views&color=0e75b6&style=flat" alt="jaspreetkhanuja" /> </p>
 
-- 📫 How to reach me **jaspreetkkhanuja1905@gmail.com**
+- 📫How to reach me **jaspreetkkhanuja1905@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1w2UfFxDLIH4thgiw8USNziMFQbmNbU0P/view?usp=sharing](https://drive.google.com/file/d/1w2UfFxDLIH4thgiw8USNziMFQbmNbU0P/view?usp=sharing)
+- 📄Know about my experiences [https://drive.google.com/file/d/1w2UfFxDLIH4thgiw8USNziMFQbmNbU0P/view?usp=sharing](https://drive.google.com/file/d/1w2UfFxDLIH4thgiw8USNziMFQbmNbU0P/view?usp=sharing)
 
-- ⚡ Fun fact **Debugging is like being the detective in a crime movie where you're also the murderer.🔍💻**
+- 💬Fun fact- **Debugging is like being the detective in a crime movie where you're also the murderer.🔍💻**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
